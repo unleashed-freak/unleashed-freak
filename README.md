@@ -14,5 +14,5 @@ check out this cool ass page that i made to introduce my interests n shit.. youl
 
 
 
-------------------------------> [click here](https://) <----------------
+------------------------------> [click here](https://) <---------------- (still wip lol)
 
