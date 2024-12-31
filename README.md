@@ -6,10 +6,12 @@
 
 
 
-                                    HEY EVERY
-                                            check out that cool ass page that i made to introduce my interests n shit.. youll see
+                              HEY EVERY
+                                    check out that cool ass page that i made to introduce my interests n shit.. youll see
 
-                                                 -> [click here](https://vk.com/honk__honk)
+
+
+ -----------------------------------------------------------------> [click here](https://)
 
 
 
