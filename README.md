@@ -8,11 +8,3 @@
 
 ⊹₊┈ㆍ┈ㆍ┈ㆍ✿ㆍ┈ㆍ┈ㆍ┈₊⊹HEY EVERY
 
-
-
-check out this cool ass page that i made to introduce my interests n shit.. youll see
-
-
-
-------------------------------> [click here](https://) <---------------- (still wip lol)
-
